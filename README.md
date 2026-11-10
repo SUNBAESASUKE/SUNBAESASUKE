@@ -1,8 +1,7 @@
 <p align="center">
 19 : NeuMasc : British/German.
-<p align="center">
 Afkmaxxing. 
-<p align="center">
+
 Just returned to pt ^w^
 
 
