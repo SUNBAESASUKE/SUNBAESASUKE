@@ -10,5 +10,5 @@ Just returned to pt ^w^
 <img src="https://github.com/user-attachments/assets/a6aff1c5-3f46-4e66-95e4-59658f006239" width="500">
 
 
-<p align="center">
+
 [PTs Cheriku](https://github.com/pt-ship-nominations) ty boo<3
