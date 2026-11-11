@@ -14,6 +14,7 @@ Just returned to pt ^w^
 </a>
 </p>
 <details>
+<p align="center">
 <summary>$${"Awards."}$$ᐟ</summary>
   
   [Pts Cheriku](https://github.com/pt-ship-nominations) Ty!
