@@ -11,4 +11,15 @@ Just returned to pt ^w^
 
 
 
-[PTs Cheriku](https://github.com/pt-ship-nominations) ty boo<3
+</a>
+</p>
+<details>
+<summary>$${"Awards."}$$ᐟ</summary>
+  
+  [Pts Cheriku](https://github.com/pt-ship-nominations) Ty!
+
+
+
+</details>
+
+
